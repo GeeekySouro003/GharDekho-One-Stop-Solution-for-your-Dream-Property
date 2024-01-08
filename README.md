@@ -1,1 +1,1 @@
-# GharDekho-One-Stop-Solution-for-your-Dream-Property
+# GharDekho-One Stop Solution for your Dream Property
